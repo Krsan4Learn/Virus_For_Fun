@@ -7,7 +7,7 @@ This virus aims to learn and have fun with friends, and we do not mean anything,
 Follow me on:
 The YouTube :http://youtube.com/krsan4learn
 Telegram: t.me/OmarMohmad
-my blog :https://thedigitalagee.blogspot.com/
+my blog :https://www.krsan4learn.com/
 Facebook :https://www.facebook.com/CoderOmar/
 Instagram:https://www.instagram.com/coder_ammar/
 Twitter:https://twitter.com/Coder_Ammar
